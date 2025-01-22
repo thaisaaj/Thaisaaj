@@ -5,7 +5,7 @@
 
 🗺️ Sou de Uberlândia-MG, Brasil.
 
-📚 Java, C#, SQL
+📚 Java, SQL
 
 
 <br/>
