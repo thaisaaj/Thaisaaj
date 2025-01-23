@@ -25,7 +25,7 @@
 
 
 
- Obrigado pela visita.
+ Obrigada pela visita.
 
  
  Ícones por: https://icons8.com.br/
